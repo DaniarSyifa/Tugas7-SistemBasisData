@@ -71,8 +71,3 @@ Hasil
 Hasil Browser 
 
 ![image](https://user-images.githubusercontent.com/101815570/177026781-c2d8d658-242c-4c04-b0a0-814594bea47b.png)
-
-kami
-kami
-
-
